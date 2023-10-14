@@ -1,5 +1,4 @@
-I'm \_Φ(-\_-zz..  
-I creates minecraft JE datapack – probably.
+\_Φ(-\_-zz..です。  
 
 [Youtube](https://www.youtube.com/@d-_-zz..)
 [Twitter](https://twitter.com/8lubat)
