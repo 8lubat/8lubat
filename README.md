@@ -1,4 +1,4 @@
-\_Φ(-\_-zz..です。  
+\_Φ(-\_-zz..  
 
 [Youtube](https://www.youtube.com/@d-_-zz..)
 [Twitter](https://twitter.com/8lubat)
