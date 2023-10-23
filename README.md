@@ -1,6 +1,6 @@
 \_Φ(-\_-zz..  
 
-[Youtube @d-_-zz..](https://www.youtube.com/@d-_-zz..). 
+[Youtube @d-_-zz..](https://www.youtube.com/@d-_-zz..)  
 [Twitter @8lubat](https://twitter.com/8lubat)
 
 <!---
